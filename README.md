@@ -9,5 +9,8 @@ Meu nome é Daniel Pastel
 - ### Você entrar em contato comigo 📫
 
 - @daniel.furlan.oliveira@escola.pr.gov.br
+
  insta @danielfurlan009
-  
+
+![](![image](https://github.com/user-attachments/assets/7e34bc5a-3668-4efa-9f83-1310c196d29e)
+
