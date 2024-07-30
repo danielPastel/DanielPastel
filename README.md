@@ -12,5 +12,6 @@ Meu nome é Daniel Pastel
 
  insta @danielfurlan009
 
-![](![image](https://github.com/user-attachments/assets/7e34bc5a-3668-4efa-9f83-1310c196d29e)
+![](![image](https://github.com/user-attachments/assets/f2abef65-f973-44b7-8e89-90da626b8e1a)
+
 
