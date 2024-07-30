@@ -10,7 +10,7 @@ Meu nome é Daniel Pastel
 
 - @daniel.furlan.oliveira@escola.pr.gov.br
 
- insta @danielfurlan009
+ [instagram] (https://www.instagram.com.br) @danielfurlan009
 
 ![](https://media1.tenor.com/m/qsqwmV7R_-oAAAAd/kung-fu-black-guy.gif)
 
