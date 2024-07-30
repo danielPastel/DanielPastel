@@ -12,6 +12,6 @@ Meu nome é Daniel Pastel
 
  insta @danielfurlan009
 
-![](![image](https://github.com/user-attachments/assets/f2abef65-f973-44b7-8e89-90da626b8e1a)
+![](https://media1.tenor.com/m/qsqwmV7R_-oAAAAd/kung-fu-black-guy.gif)
 
 
