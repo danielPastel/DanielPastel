@@ -2,7 +2,7 @@
 
 Meu nome é Daniel Pastel
 
-- Estou estudando na Alura
+- Estou estudando na [Alura] (https://www.alura.com.br)
 - Estou desenvolvendo na línguagem Javascript
 - Utlizo esse espaço para organização e compartilhamento dos meus projetos desenvovlvidos
 
